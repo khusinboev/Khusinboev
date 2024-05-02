@@ -1,4 +1,4 @@
-I'M MUSLIM AND VERY GREAT PERSON
+I'M MUSLIM AND PERSON
 
 - 👋 Hi, I’m @Khusinboev
 - 👀 I’m interested in ...
